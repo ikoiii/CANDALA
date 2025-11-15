@@ -1,0 +1,1 @@
+# Ini-sebuah-cerita-yang-telah-usang
